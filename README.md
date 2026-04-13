@@ -55,3 +55,6 @@ and proposes secure, user-controlled solutions.
 🎯 Conclusion
 
 HomeSmart AI Helper shows how AI can simplify family life, improve health tracking, and enhance daily organization in a responsible and user-friendly way.
+
+
+HERE  IS A LINK TO THE VIDEO https://drive.google.com/file/d/1g5BWn_7_vnZvqp8yv9ZEPAMmCmnGI3d8/view?usp=sharing
